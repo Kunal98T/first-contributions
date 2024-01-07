@@ -19,7 +19,7 @@
 - [Nitin Yadav](https://github.com/nitinya9av) </❤️>
 - [Angelica Michaca](https://github.com/Angelica-Michaca)
 - [Sivapannier]
-- kunal takalkhede 
+- kunal takalkhede  
 - [charlesdzadu](https://github.com/charlesdzadu)
 - [Milind Dhamu](https://github.com/milinddhamu)
 - [Tony B. Nya](https://github.com/tonybnya)
